@@ -1,1 +1,0 @@
-# -GIRL-ERA-Cover-Maker-Mockup-Generator
